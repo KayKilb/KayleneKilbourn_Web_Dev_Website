@@ -1,0 +1,1 @@
+This is my personal website created to provide information about myself and my journey with Atlas School
